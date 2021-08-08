@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @NickSlik08
+- 👀 I’m interested in Gorillas
+- 🌱 I’m currently learning nothing
